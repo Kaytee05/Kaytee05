@@ -2,7 +2,7 @@
 - 👀 I’m interested in becoming an SE
 - 🌱 I’m currently learning Pharmaceutical scineces.
 - 💞️ I’m looking to collaborate on mastering the SE programme
-- 📫 How to reach me through my email address at kaitlynchauke05@gmail.com
+- 📫 You can reach me through my email address at kaitlynchauke05@gmail.com
   
 
 <!---
